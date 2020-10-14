@@ -11,9 +11,8 @@
 ![instruction](https://static.wixstatic.com/media/bc193a_19e46080ab554bf983cd812231c4c92f~mv2.jpg)
 ![instruction](https://static.wixstatic.com/media/bc193a_a6150da323e84277a6b950d2f40f9e9b~mv2.jpg)
 - Add milk and mix it properly.
-![instruction](https://static.wixstatic.com/media/bc193a_5fa418444aa24f0b969444b7574713f4~mv2.jpg)
+![instruction](https://static.wixstatic.com/media/bc193a_58b209aeee1e4c0d939288bd4cfa806e~mv2.jpg)
 - Coat tutti frutty with 2 tbsp flour and put tutty frutty into the batter. 
-![instruction](https://static.wixstatic.com/media/bc193a_85ea9f720d9749368938bde14d66ea5d~mv2.jpg)
 ![instruction](https://static.wixstatic.com/media/bc193a_93e871eb44714d52b31a522a752b404b~mv2.jpg)
 ![instruction](https://static.wixstatic.com/media/bc193a_f973da2b72ff430fa76560c04c297ce1~mv2.jpg)
 - Mix the batter properly and take a deep pan.
