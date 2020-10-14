@@ -4,4 +4,4 @@
 - Total time of preparing this cake is approx 50 min.
 
 
-#### [Next Page-->](https://github.com/Ashwin-055/cake-without-oven-and-eggs/blob/main/myRecipes/cake-without-oven-and-eggs/ingredients.md)
+#### [See Ingredients-->](https://github.com/Ashwin-055/cake-without-oven-and-eggs/blob/main/myRecipes/cake-without-oven-and-eggs/ingredients.md)
